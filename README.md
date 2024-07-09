@@ -2,7 +2,7 @@
 - 👀 I’m interested in DA
 - 🌱 I’m currently learning Data-Driven Forecasting
 - 💞️ I’m looking to collaborate on AI and Control Theory
-- 📫 How to reach me : kurosawa[at]chiba-u.jp
+- 📫 How to reach me : nullyyowl[at]gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: LEGO
 
